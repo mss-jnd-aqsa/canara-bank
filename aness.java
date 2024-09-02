@@ -170,6 +170,7 @@ It was irresponsible, she knew, but she didn’t care. Her life was hers again, 
 Emma got into her truck, turned the ignition, and drove to the exit of the parking lot. She had no idea where she was going, but she knew that she wouldn’t be back here. Before she headed off into the night, she checked her mirror, catching a glimpse of the pile of albums. Maybe it was a trick of the light, but she thought she saw three spirits wavering there. They were smiling, and waving.
 
 I love you, she mouthed, pressing a kiss into her fingers, then up into the mirror.
+hello . all how are you ,, this code is good 
 
 They faded away, and she wiped the tears from her cheeks. Changing to first, she was off, driving into the light of dawn.
 
